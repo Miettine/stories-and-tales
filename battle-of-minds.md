@@ -2,7 +2,7 @@
 
 _by Lauri Johannes Miettinen in 2021, slightly edited in 2025_
 
-No Artificial Intelligence language models were used during the creation of this novel. This story is inspired by traditional Tibetan stories. All characters and events depicted are fictional.
+No Artificial Intelligence language models were used at any point during the creation of this novel. This story is inspired by traditional Tibetan stories. All characters and events depicted are fictional.
 
 ---
 
