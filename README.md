@@ -2,6 +2,6 @@
 
 Greetings. This project is a place for me to host my fictional stories and novels. This is not a code project, only text.
 
-Enter through GitHub pages to read stories: 
+Enter through GitHub pages to read stories: ...
 
-Why is this on GitHub? GitHub and GitHub pages is a familiar platform for me to use. Also I would rather not spread my social media presence across too many websites.
+Why is this on GitHub? GitHub is a familiar platform for me to use. Also I would rather not spread my social media presence across too many websites.
