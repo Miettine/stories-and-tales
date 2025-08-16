@@ -1,3 +1,5 @@
+Language / kielivalinta: English / [Suomi](battle-of-minds.fi.md)
+
 # Battle of Minds
 
 _by Lauri Johannes Miettinen in 2021, slightly edited in 2025_
