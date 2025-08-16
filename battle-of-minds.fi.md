@@ -2,7 +2,7 @@ Language / kielivalinta: [English](battle-of-minds.md) / Suomi
 
 # Mielten Taistelu
 
-_tehnyt Lauri Johannes Miettinen vuonna 2021, muokattu vuonna 2025_
+_Tehnyt Lauri Johannes Miettinen vuonna 2021, muokattu vuonna 2025_
 
 Tekoälykielimalleja ei käytetty tämän novellin ideoimisen ja kirjoittamisen aikana. Tämä on fiktiivinen tarina, perinteisten tiibetiläisten tarinoiden inspiroima. Kaikki hahmot ja tapahtumat ovat keksittyjä.
 
