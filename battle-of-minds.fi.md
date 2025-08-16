@@ -12,7 +12,7 @@ Olen kuullut kun eräs nuori alkemisti oli vaeltamassa Tiibetin ylängöllä. H�
 
 Hänen Karmansa ansiosta alkemisti päätyi luolaan jossa Pyhä Nainen, Oivaltanut, oli syvässä mietiskelyssä.
 
-Yangchen, Oivaltaut, oli ennaltanähnyt Tenzinin, nuoren alkemistin saapumisen.
+Yangchen, Oivaltanut, oli ennaltanähnyt Tenzinin, nuoren alkemistin saapumisen.
 
 **Tenzin**\
 Askeetti! Kuinka kauan aikaa olet istunut siinä? Minun elämäni on täynnä nautintoa, tieteellisiä saavutuksia ja onnea samalla kun sinä istut täällä tuhlaten elämääsi. Minä omistan neljä hevosta ja jonain päivänä omistan sata. Etkö ole koskaan halunnut syödä itseäsi kylläiseksi joka päivä? Etkö ole haikaillut aviomiestä rinnallesi tai lapsia sukusi jatkajiksi?
