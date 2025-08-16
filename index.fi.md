@@ -1,7 +1,7 @@
 Language / kielivalinta: [English](index.md) / Suomi
 
-# Tarinoita ja Satuja
+# Tarinoita ja Kertomuksia
 
 Täällä on novelleja jotka ovat  _Lauri Johannes Miettisen (miettine)_ kirjoittamia.
 
-**[Mielten Taistelu (2021)](battle-of-minds.md)** - Tarinan suomennos ei ole valmis vielä.
+**[Mielten Taistelu (2021)](battle-of-minds.fi.md)**
