@@ -33,7 +33,7 @@ Sounds impressive but I know I am greater than you. I would trade none of my abi
 
 Tenzin taunted the Realized One and defiantly challenged her to a duel, a battle to prove whose powers are greater.
 
-Yangchen and Tenzin laid out the rules of their duel. Tenzin would start by describing a challenge. Tenzin led Yangchen, descending a nearby valley, to a forest where he found a large stone.
+Yangchen and Tenzin laid out the rules of their duel. Tenzin would start by describing a challenge. Tenzin led Yangchen, descending a nearby valley to a forest where he found a large stone.
 
 **Tenzin**\
 With the strength I have gained from the great ape, the elephant and rhinoceros, I can strike my hand through this stone!
@@ -50,21 +50,21 @@ You challenged me to strike my hand through a rock and it is what I did. For man
 
 Tenzin was displeased but he begrudgingly admitted his defeat. Now it was Yangchen's turn to propose a challenge to Tenzin. Yangchen challenged Tenzin to a race to the top of Chomolungma (Mount Everest). They picked a starting signal when the last ray of the evening sun had disappeared behind the mountains.
 
-The two waited patiently, side-by side, keeping close eye on the sun. When the sun had disappeared Tenzin set off with superhuman speed. He looked behind him and saw Yangchen only sit down, cross her legs and quiet down in meditation. Tenzin raged and taunted his opponent
+The two waited patiently side-by side, keeping close eye on the sun. When the sun had disappeared Tenzin set off with superhuman speed. He looked behind him and saw Yangchen only sit down, cross her legs and quiet down in meditation. Tenzin raged and taunted his opponent
 
 **Tenzin**\
 You fool! With the speed I have gained from the gazelle and my mountain climbing skills of the goat you will never catch me in time. Now you have already lost!
 
 Evening fell as Tenzin raced through the woods and began ascending the mountain in mighty leaps and bounds. 
 
-All of a sudden, Yangchen was flying through the air. Sitting cross-legged, flying towards the mountain with a speed that surpassed Tenzin's. Tenzin picked up his pace, with leaps and strides that turned stones under his feet, but his speed was no match for Yangchen's speed in flight. Yangchen landed at the top of the mountain and sat waiting for Tenzin to run up.
+All of a sudden Yangchen was flying through the air. Sitting cross-legged, flying towards the mountain with a speed that surpassed Tenzin's. Tenzin picked up his pace with leaps and strides that turned stones under his feet but his speed was no match for Yangchen's speed in flight. Yangchen landed at the top of the mountain and sat waiting for Tenzin to run up.
 
 As Tenzin arrived at the top he was furious. Yangchen explained calmly and with confidence.
 
 **Yangchen**\
 For you the mind is merely a tool that you used to gain your powers. I have gained mastery over the power of the mind. I have known hunger, thirst and cold for years on end and broken free of the oppressive constraints of the human body. With the power of my patience and concentration, I have overcome the body’s tendency of succumbing to gravity.
 
-As it was getting darker and harder to see, Tenzin challenged Yangchen to a contest in which of them could see the farthest with their eyes. Tenzin pointed down the slope of a mountain. With his eagle-eyes the man claimed he could see a beetle sitting on a rock. He demanded the Realized One.
+As it was getting darker and harder to see Tenzin challenged Yangchen to a contest in which of them could see the farthest with their eyes. Tenzin pointed down the slope of a mountain. With his eagle-eyes the man claimed he could see a beetle sitting on a rock. He demanded the Realized One.
 
 **Tenzin**\
 Now tell me, oh great and mighty Enlightened One, what color is that beetle's back?
@@ -98,12 +98,12 @@ You even admit that your visions are based on nothing but feelings. Feelings are
 All states of mind are subject to change, so is logic and science. A field of science that is praised today will be slandered tomorrow. A logician who is certain of his reasoning today will change his mind tomorrow. This is why your theories do not matter. I have reached a state of greater happiness than you have.
 
 **Tenzin**\
-You claim you are happy, but only because your judgment is clouded by your empty, joyful emotions during your meditation. We can only become happy if we get what we want from life and time is running out. A human lifetime is short. Feeling bliss or calm is not enough to call ourselves happy.
+You claim you are happy but only because your judgment is clouded by your empty, joyful emotions during your meditation. We can only become happy if we get what we want from life and time is running out. A human lifetime is short. Feeling bliss or calm is not enough to call ourselves happy.
 
 As the two continued debating neither would admit defeat. Growing increasingly frustrated, Tenzin finally spoke out.
 
 **Tenzin**\
-This ends now. I challenge you to a duel to the death. If you have freed yourself from all conveniences of ordinary life surely you have freed yourself from the fear of death. I know I have become free. If I die tonight, my only regret is not reaching an even higher level of skill and understanding in science.
+This ends now. I challenge you to a duel to the death. If you have freed yourself from all conveniences of ordinary life surely you have freed yourself from the fear of death. I know I have become free. If I die tonight my only regret is not reaching an even higher level of skill and understanding in science.
 
 The Realized One expressed her acceptance.
 
@@ -123,7 +123,7 @@ He let the lightning strike him. Lightning coursed through Tenzin’s body and h
 
 Seeing the woman defenseless and beaten, Tenzin felt a tinge of compassion. He gave up his will to harm the Realized One. Tenzin lifted the unconscious woman up in his arms and took her to a safe shelter.
 
-In the middle of the night, Yangchen awakened. She noticed that the young alchemist had caringly wrapped her in a blanket and made a fire to keep her warm. 
+In the middle of the night Yangchen awakened. She noticed that the young alchemist had caringly wrapped her in a blanket and made a fire to keep her warm. 
 
 **Tenzin**\
 How are you holding up? I could see no signs of injuries on your body.
@@ -139,10 +139,10 @@ Yangchen and Tenzin fell asleep next to each other like lovers. Keeping each oth
 They awakened to a cool morning.
 
 **Yangchen**\
-Tenzin, I have spent twenty years on this plateau going from cave to cave meditating. I have not spoken to anyone in years. Not once in my life have I ever slept next to a man. Over these years I destroyed my yearning for companionship with sheer force of will. My years of loneliness have never been easy. I realized last night that this is not a fight I can win. I want every day for the rest of my life to be like this. I am done with my solitary life. We will become close companions. Will you marry me?
+Tenzin. I have spent twenty years on this plateau going from cave to cave meditating. I have not spoken to anyone in years. Not once in my life have I ever slept next to a man. Over these years I destroyed my yearning for companionship with sheer force of will. My years of loneliness have never been easy. I realized last night that this is not a fight I can win. I want every day for the rest of my life to be like this. I am done with my solitary life. We will become close companions. Will you marry me?
 
 **Tenzin**\
-All the years you have spent sitting in caves, meditating, has made you unable to bear children. I need a young wife who will carry my sons whom I could teach to be my successors. I am afraid I cannot accept your proposal.
+All the years you have spent sitting in caves meditating has made you unable to bear children. I need a young wife who will carry my sons whom I could teach to be my successors. I am afraid I cannot accept your proposal.
 
 Yangchen's mind was wracked with disappointment and grief but she did not let her feelings show.
 
