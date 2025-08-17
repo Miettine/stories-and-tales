@@ -81,7 +81,7 @@ Kuinka kauas sinä sitten pystyt näkemään?
 Näen kaiken, menneisyyden ja tulevaisuuden. Tämä on yhdeksässadas yhdeksäskymmenes yhdeksäs elämä jossa olet syntynyt ihmisolennoksi. Sinun ylpeytesi voimasta tulet uudestisyntymään jumalten maailmaan, mitä seuraa tuhat ihmiselämää.
 
 **Tenzin**\
-Väitteesi ovat vain retoriikkaa. Väitteesi uudestisyntymän ja jumalten maailmojen olemassaolosta on mahdoton todistaa. Miltä sinusta tuntuisi jos sanoisin että olkapäälläni istuu näkymätön henkiolento jota ei voi koskettaa, ja että nyt sinun tehtäväsi olisi todistaa että henkiolentoa ei ole? Olisit hyvästä syystä suuttunut minulle.
+Väitteesi ovat vain retoriikkaa. Väitteesi uudestisyntymän ja jumalten maailmojen olemassaolosta on mahdoton todistaa. Miltä sinusta tuntuisi jos sanoisin että olkapäälläni istuu näkymätön henkiolento jota ei voi koskettaa ja että nyt sinun tehtäväsi olisi todistaa että henkiolentoa ei ole? Olisit hyvästä syystä suuttunut minulle.
 
 Tieteen oppilas keksi vielä yhden tavan jolla hän yrittäisi päihittää vastustajansa.
 
@@ -139,7 +139,7 @@ Yangchen ja Tenzin nukahtivat vierekkäin kuin rakastavaiset. Pitäen toisensa l
 He heräsivät viileään aamuun.
 
 **Yangchen**\
-Tenzin, olen viettänyt kaksikymmentä vuotta tällä tasangolla, kulkien luolasta luolaan, mietiskellen. En ole puhunut kenellekään moneen vuoteen. Kertaakaan elämässäni en ole nukkunut miehen vieressä. Näiden vuosien kuluessa tuhosin kaipaukseni kumppanuutta kohtaan tahtoni voimalla. Vuosia kestänyt yksinäisyyteni ei koskaan ollut helppoa. Oivalsin viime yönä että tätä taistelua en voi voittaa. Haluan joka päiväni loppu elämäni ajan olevan tällainen. Olen saanut tarpeekseni erakon elämästäni. Meistä tulee läheisiä kumppaneita. Otatko minut vaimoksesi?
+Tenzin. Olen viettänyt kaksikymmentä vuotta tällä tasangolla kulkien luolasta luolaan, mietiskellen. En ole puhunut kenellekään moneen vuoteen. Kertaakaan elämässäni en ole nukkunut miehen vieressä. Näiden vuosien kuluessa tuhosin kaipaukseni kumppanuutta kohtaan tahtoni voimalla. Vuosia kestänyt yksinäisyyteni ei koskaan ollut helppoa. Oivalsin viime yönä että tätä taistelua en voi voittaa. Haluan joka päiväni loppu elämäni ajan olevan tällainen. Olen saanut tarpeekseni erakon elämästäni. Meistä tulee läheisiä kumppaneita. Otatko minut vaimoksesi?
 
 **Tenzin**\
 Kaikki ne vuodet mitä olet viettänyt luolissa mietiskellen, ovat tehneet sinusta kyvyttömän kantaa lapsia. Tarvitsen nuoren vaimon joka voi kantaa poikani, jotta voisin opettaa heistä seuraajiani. Olen pahoillani mutta en voi hyväksyä kosimistasi.
