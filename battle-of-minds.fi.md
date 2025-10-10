@@ -33,7 +33,7 @@ Kuulostaa vaikuttavalta, mutta tiedän olevani sinua mahtavampi. En vaihtaisi mi
 
 Tenzin pilkkasi Oivaltanutta ja haastoi hänet kaksintaisteluun. He kamppailisivat siitä kumman voimat ovat suurempia.
 
-Yangchen ja Tenzin kävivät läpi kaksintaistelun säännöt. Tenzin aloitti kuvailemalla haasteen. Tenzin johdatti Yanghenin mukanaan metsäiseen laaksoon, jossa hän löysivät suuren kiven.
+Yangchen ja Tenzin kävivät läpi kaksintaistelun säännöt. Tenzin aloitti kuvailemalla haasteen. Tenzin johdatti Yanghenin mukanaan metsäiseen laaksoon, jossa hän löysi suuren kiven.
 
 **Tenzin**\
 Voimalla jonka olen saanut suurelta apinalta, elefantilta ja sarvikuonolta, voin lyödä käteni tämän kiven halki!
