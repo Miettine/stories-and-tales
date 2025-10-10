@@ -64,7 +64,7 @@ Saavuttaessaan huipun Tenzin oli raivoissaan. Yangchen selitti rauhallisesti ja 
 **Yangchen**\
 Sinulle mieli on vain työkalu jolla olet saanut voimasi. Minä olen täysin taitanut oman mieleni voimat. Olen tuntenut nälkää, janoa ja kylmyyttä vuosikausia ja vapautunut ihmiskehon kahleista. Kärsivällisyyteni ja keskittymiseni voimalla olen voittanut kehoni taipumuksen alistua painovoiman luonnonlakeihin.
 
-ilta jatkoi pimenemistään ja näkyvyys oli heikko. Tenzin haastoi Yangchenin kilpailuun jossa testataan että kuinka kauas he kykenevät näkemään silmillään. Tenzin osoitti alas vuoren seinämää. Hänen kotkan silmillään hän väitti että hän pystyi näkemään kovakuoriaisen istumassa kivellä. Hän haastoi Oivaltaneen.
+Ilta jatkoi pimenemistään ja näkyvyys oli heikko. Tenzin haastoi Yangchenin kilpailuun jossa koetellaan että kuinka kauas he kykenevät näkemään silmillään. Tenzin osoitti alas vuoren seinämää. Hänen kotkan silmillään hän väitti että hän pystyi näkemään kovakuoriaisen istumassa kivellä. Hän haastoi Oivaltaneen.
 
 **Tenzin**\
 Kerrohan, oi suuri ja mahtava Valaistunut, minkä värinen on tuon kovakuoriaisen kuori?
@@ -113,7 +113,7 @@ Tenzin ilmaisi olevansa valmis. Yangchen ilmaisi olevansa valmis. He kumarsivat 
 
 Yangchen kuvitteli että Tenzinin kunto hiipuisi jos hän välttelisi hyökkäyksiä. Yangchen yritti lentää Tenzinistä pois päin ja paeta maan alle lipumalla maankamaran ja kiven halki. Näistä ei ollut apua sillä Tenzinin voima ja raivokkuus vaikuttivat loputtomalta.
 
-Yangchenilla oli vain yksi voima jäljellä jolla hän yrittäisi päihittää vastustajansa - hänen kykynsä hallita säätä. Vuosien mietiskelyn aikana hän oli saanut kyvyn laannuttaa myrskypilviä luodakseen paremmat olosuhteet mietiskelylleen. Samaan tapaan mutta päin vastoin, hän oli myös oppinut kyvyn kutsua myrsky… Pilvet kerääntyivät taivaalle ja muuttuivat mustiksi. Pimeys nielaisi tasangon. Ukkonen jylisi pilvissä. Yangchen käski pilviä iskemään Tenziniä salamalla.
+Yangchenilla oli vain yksi voima käytettävänään jolla hän yrittäisi päihittää vastustajansa - hänen kykynsä hallita säätä. Vuosien mietiskelyn aikana hän oli saanut kyvyn laannuttaa myrskypilviä luodakseen paremmat olosuhteet mietiskelylleen. Samaan tapaan mutta päin vastoin, hän oli myös oppinut kyvyn kutsua myrsky… Pilvet kerääntyivät taivaalle ja muuttuivat mustiksi. Pimeys nielaisi tasangon. Ukkonen jylisi pilvissä. Yangchen käski pilviä iskemään Tenziniä salamalla.
 
 Sokaiseva väläisy ja valtaisa pamahdus. Salama iski Tenziniin suoraan.
 
