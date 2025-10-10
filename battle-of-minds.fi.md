@@ -64,7 +64,7 @@ Saavuttaessaan huipun Tenzin oli raivoissaan. Yangchen selitti rauhallisesti ja 
 **Yangchen**\
 Sinulle mieli on vain työkalu jolla olet saanut voimasi. Minä olen täysin taitanut oman mieleni voimat. Olen tuntenut nälkää, janoa ja kylmyyttä vuosikausia ja vapautunut ihmiskehon kahleista. Kärsivällisyyteni ja keskittymiseni voimalla olen voittanut kehoni taipumuksen alistua painovoiman luonnonlakeihin.
 
-Ilta jatkoi pimenemistään ja näkyvyys oli heikko. Tenzin haastoi Yangchenin kilpailuun jossa koetellaan että kuinka kauas he kykenevät näkemään silmillään. Tenzin osoitti alas vuoren seinämää. Hänen kotkan silmillään hän väitti että hän pystyi näkemään kovakuoriaisen istumassa kivellä. Hän haastoi Oivaltaneen.
+Ilta jatkoi pimenemistään ja näkyvyys oli heikko. Tenzin haastoi Yangchenin kilpailuun jossa koetellaan että kuinka kauas he kykenevät näkemään silmillään. Tenzin osoitti alas vuoren seinämää. Hän väitti että hän pystyi näkemään kotkan silmillään kovakuoriaisen istumassa kivellä. Hän haastoi Oivaltaneen.
 
 **Tenzin**\
 Kerrohan, oi suuri ja mahtava Valaistunut, minkä värinen on tuon kovakuoriaisen kuori?
@@ -107,7 +107,7 @@ Tämä saa loppua. Haastan sinut kaksintaisteluun kuolemaan saakka. Jos kerta ol
 
 Oivaltanut antoi hyväksyntänsä.
 
-Kaksikko laskeutui vuorelta tasangolle
+Kaksikko laskeutui vuorelta tasangolle.
 
 Tenzin ilmaisi olevansa valmis. Yangchen ilmaisi olevansa valmis. He kumarsivat ja aloittivat. Tenzin ampaisi raivokkaasti eteenpäin ja harppoi kohti Yangchenia, aikoen surmata hänet paljailla käsillään.
 
@@ -139,7 +139,7 @@ Yangchen ja Tenzin nukahtivat vierekkäin kuin rakastavaiset. Pitäen toisensa l
 He heräsivät viileään aamuun.
 
 **Yangchen**\
-Tenzin. Olen viettänyt kaksikymmentä vuotta tällä tasangolla kulkien luolasta luolaan, mietiskellen. En ole puhunut kenellekään moneen vuoteen. Kertaakaan elämässäni en ole nukkunut miehen vieressä. Näiden vuosien kuluessa tuhosin kaipaukseni kumppanuutta kohtaan tahtoni voimalla. Vuosia kestänyt yksinäisyyteni ei koskaan ollut helppoa. Oivalsin viime yönä että tätä taistelua en voi voittaa. Haluan joka päiväni loppu elämäni ajan olevan tällainen. Olen saanut tarpeekseni erakon elämästäni. Meistä tulee läheisiä kumppaneita. Otatko minut vaimoksesi?
+Tenzin, olen viettänyt kaksikymmentä vuotta tällä tasangolla kulkien luolasta luolaan, mietiskellen. En ole puhunut kenellekään moneen vuoteen. Kertaakaan elämässäni en ole nukkunut miehen vieressä. Näiden vuosien kuluessa tuhosin kaipaukseni kumppanuutta kohtaan tahtoni voimalla. Vuosia kestänyt yksinäisyyteni ei koskaan ollut helppoa. Oivalsin viime yönä että tätä taistelua en voi voittaa. Haluan joka päiväni loppu elämäni ajan olevan tällainen. Olen saanut tarpeekseni erakon elämästäni. Meistä tulee läheisiä kumppaneita. Otatko minut vaimoksesi?
 
 **Tenzin**\
 Kaikki ne vuodet mitä olet viettänyt luolissa mietiskellen, ovat tehneet sinusta kyvyttömän kantaa lapsia. Tarvitsen nuoren vaimon joka voi kantaa poikani, jotta voisin opettaa heistä seuraajiani. Olen pahoillani mutta en voi hyväksyä kosimistasi.
